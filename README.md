@@ -1,1 +1,5 @@
 # joeyudaking.github.io
+Hear Ye…Hear Ye, your adventure awaits you. Embark on a thrilling journey through a bustling Tudor village, where your destiny hangs in the balance with every daring choice. Will you till the soil as a farmer, carve your path as a carpenter, or savor the artistry of a weaver? Dive into the heart of adventure as a humble kitchen maid or immerse yourself in the tales of old as a book binder. Feel the pulse of excitement at the shoemaker’s bench or spin your dreams into reality as a hard-working yarn spinner!
+
+For those hungry for abundance, tread the path of the rich Tudor, where grandeur and luxury await at every turn. The adventure unfolds, and your decisions are the compass guiding this exhilarating tapestry of choices while simultaneously learning about Tudor history. The stage is set for a journey that will echo through time! What bold destiny will you forge in this Tudor adventure? The thrills await, and the threads of fate are yours to grasp!
+![image](https://github.com/joeyudaking/joeyudaking.github.io/assets/145597292/2f41d6a3-be63-4db8-8dce-1fc1d09568dd)
